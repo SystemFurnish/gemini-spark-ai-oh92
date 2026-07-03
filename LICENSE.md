@@ -1,4 +1,4 @@
-# 
+# Atualizado Gemini Spark predefinições. Com grafos de conhecimento e controle de versão — otimizado para máximo desempenho e eficiência.
 
 
 
